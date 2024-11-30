@@ -19,7 +19,8 @@
 # ejercicio 5 
 ![image](https://github.com/user-attachments/assets/b3bd8d53-f290-4083-b44b-8bc90bc14610)
 ![image](https://github.com/user-attachments/assets/9116598a-f23a-472e-946b-6dff18474bf7)
-![image](https://github.com/user-attachments/assets/76474411-8a61-4e87-b7ae-a2b675799ee6)
+![image](https://github.com/user-attachments/assets/38b81689-b2a6-47fc-bca7-d2e10acbebb2)
+
 
 
 
